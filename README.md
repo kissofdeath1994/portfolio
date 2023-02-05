@@ -18,7 +18,7 @@
 **Совмещать обучение и работу,реальную жизнь оказалось сложнее чем я думал,но обещаю что буду стараться !**
 
 **Несколько моих фото**
-(https://e.mail.ru/cgi-bin/getattach?file=IMG_8454.jpg&id=16756107722143260883%3B0%3B1&mode=attachment&project=cloud&x-email=alex_daivi%40mail.ru)
+![](https://e.mail.ru/cgi-bin/getattach?file=IMG_8454.jpg&id=16756107722143260883%3B0%3B1&mode=attachment&project=cloud&x-email=alex_daivi%40mail.ru)
 ![](/IMG_5414.HEIC)
 
 ![](/IMG_5435.HEIC)
