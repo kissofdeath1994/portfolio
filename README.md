@@ -17,14 +17,7 @@
 
 **Совмещать обучение и работу,реальную жизнь оказалось сложнее чем я думал,но обещаю что буду стараться !**
 
-**Несколько моих фото**
-![](https://e.mail.ru/cgi-bin/getattach?file=IMG_8454.jpg&id=16756107722143260883%3B0%3B1&mode=attachment&project=cloud&x-email=alex_daivi%40mail.ru)
-![](/IMG_5414.HEIC)
-
-![](/IMG_5435.HEIC)
-
-![](/IMG_6024.HEIC)
-
-![](/IMG_7120.HEIC)
-
-![](Images/IMG_9125.HEIC)
+![](https://af.attachmail.ru/cgi-bin/readmsg/IMG_5414.jpg?x-email=alex_daivi@mail.ru&rid=374086013119089070061305566454897965673&&id=16756108271469630287%3B0%3B1&project=cloud&x-email=alex_daivi%40mail.ru)
+![](https://af.attachmail.ru/cgi-bin/readmsg/IMG_6024.jpg?x-email=alex_daivi@mail.ru&rid=318516976031932269591339822970401750824&&id=16756108430070587677%3B0%3B1&project=cloud&x-email=alex_daivi%40mail.ru)
+![](https://af.attachmail.ru/cgi-bin/readmsg/IMG_8454.jpg?x-email=alex_daivi@mail.ru&rid=1673569090142442849332188172383570460950&&id=16756107722143260883%3B0%3B1&project=cloud&x-email=alex_daivi%40mail.ru)
+![](https://af.attachmail.ru/cgi-bin/readmsg/IMG_7118.jpg?x-email=alex_daivi@mail.ru&rid=271666540021467521887911171342789392117&&id=16756108690632537433%3B0%3B1&project=cloud&x-email=alex_daivi%40mail.ru)
